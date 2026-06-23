@@ -1,1 +1,3 @@
-# my-digital-cookbook-practiselab6
+## Welcome to my Digital journey
+
+### Created by [ Serena Lim }
