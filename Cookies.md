@@ -4,4 +4,4 @@
 
 ### Bake Time: 12 minutes
 
-_ Ingredients: flour, sugar, butter, chocolate chips, eggs
+_ Ingredients: flour, sugar, butter, chocolate chips, eggs_
