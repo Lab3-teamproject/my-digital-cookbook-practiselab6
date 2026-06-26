@@ -1,4 +1,4 @@
-## Cookies
+## Chocolate Chip Cookies 
 
 ### Prep Time: 20 minutes
 
